@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KreutzernaCyber
-- 👀 I’m interested in Cyber Security and Network Defend
+- 👀 I’m interested in Cyber Security and Network Defence
 - 🌱 I’m currently learning Computer Science Fast track or SarMag Programs in Gunadarma University
 - 📫 How to reach me on Instagram @kresnaldiantooo._
 - 😄 Pronouns: Kresna kang obok komputer
